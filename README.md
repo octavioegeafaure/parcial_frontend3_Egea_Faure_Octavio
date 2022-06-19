@@ -1,1 +1,0 @@
-# parcial_frontend3_Egea_Faure_Octavio
